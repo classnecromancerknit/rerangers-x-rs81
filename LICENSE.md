@@ -1,4 +1,4 @@
-#  
+#  re:rangers x stealth Script is the best re:rangers x Script, featuring auto-farm and no clip. Safe and powerful for all your needs.
 
 
 
